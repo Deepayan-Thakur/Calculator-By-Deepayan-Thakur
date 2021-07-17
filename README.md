@@ -5,6 +5,6 @@ Hello everyone... My name is Deepayan Thakur. I build this calculator with my ow
 also  check this link 🥇
                             👇👇👇👇👇
 
-👉👉👉👉    https://deepayanthakur.000webhostapp.com/    👈👈👈👈👈
+👉👉👉👉    https://deepayan-thakur.000webhostapp.com/    👈👈👈👈👈
 
                             ☝️☝️☝️☝️☝️☝️
